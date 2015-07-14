@@ -1,0 +1,1 @@
+Technology need to learn.
